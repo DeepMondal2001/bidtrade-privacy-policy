@@ -1,0 +1,1 @@
+# bidtrade-privacy-policy
